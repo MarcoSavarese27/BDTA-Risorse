@@ -10,6 +10,6 @@ Ringrazio particolarmente due persone:
 - **Monica Giordano**, che mi ha passato i suoi appunti e mi ha aiutato a capire meglio alcuni concetti del corso.
 
 ## Per qualsiasi cosa
-Contattatemi su [Telegram](https://t.me/marcosava27)
+Contattatemi su Telegram! [@marcosava27](https://t.me/marcosava27)
 
 
